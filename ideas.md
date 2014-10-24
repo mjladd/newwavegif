@@ -10,6 +10,11 @@ I use a combination of KeepVid as well as Gif Brewery to make my gifs. Have I me
 
 - http://www.youtube.com/watch?v=oOg5VxrRTi0
 
+## Flock of Seagulls
+
+- https://github.com/terryp/newwavegif.git
+    - Via Bo
+
 ## Frankie Goes to Hollywood
 
 - http://www.youtube.com/watch?v=yWLHK2h8EBQ
