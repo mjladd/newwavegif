@@ -97,6 +97,12 @@ I use a combination of KeepVid as well as Gif Brewery to make my gifs. Have I me
         - 2:49 / The Swinging Light, The Empty Smoking Room
         - 
 
+## Wang Chung
+
+- https://www.youtube.com/watch?v=pJNazEjVd6Y
+- https://www.youtube.com/watch?v=V-xpJRwIA-Q
+- https://www.youtube.com/watch?v=BoXu6QmxpJE
+
 ## Yazoo
 
 - https://www.youtube.com/watch?feature=player_detailpage&v=eyCEexG9xjw
