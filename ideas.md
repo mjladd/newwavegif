@@ -48,6 +48,10 @@ I use a combination of KeepVid as well as Gif Brewery to make my gifs. Have I me
 
 - https://www.youtube.com/watch?v=fWEm4p3Dopw
 
+## Rockey Burnette
+
+- https://www.youtube.com/watch?v=IK9ijYgqKx0
+
 ## Scandal
 
 - Overview
