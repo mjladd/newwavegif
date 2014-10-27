@@ -67,6 +67,10 @@ I use a combination of KeepVid as well as Gif Brewery to make my gifs. Have I me
         - 02:07 - 02:10 / The Keyboard Player
         - 02:14 - 02:16 / The Keyboard Player
 
+## Split Enz
+
+- https://www.youtube.com/watch?v=IK9ijYgqKx0
+
 ## Stewart Copeland
 
 - Overview
