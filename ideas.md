@@ -20,6 +20,10 @@ I use a combination of KeepVid as well as Gif Brewery to make my gifs. Have I me
 - http://www.youtube.com/watch?v=yWLHK2h8EBQ
 - http://www.youtube.com/watch?v=4w61JLpw_qU
 
+## The Godfathers (new wave or alt rock?)
+
+- https://www.youtube.com/watch?v=QO5dcW0P75M
+
 ## Howard Jones
 
 - https://www.youtube.com/watch?v=raostGmaOdA
