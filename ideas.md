@@ -43,6 +43,14 @@ I use a combination of KeepVid as well as Gif Brewery to make my gifs. Have I me
 
 - https://www.youtube.com/watch?v=xDC3v-aA4Tg
 
+## Josie Cotton
+
+- http://www.youtube.com/watch?v=soleSTp_u_c
+
+## The Plimsouls
+
+- http://www.youtube.com/watch?v=aIxgBMNhsKU
+
 ## Red Rockers
 
 - https://www.youtube.com/watch?v=NN5OgiwprP8
