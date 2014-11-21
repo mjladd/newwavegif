@@ -78,12 +78,18 @@ I use a combination of KeepVid as well as Gif Brewery to make my gifs. Have I me
 ## Stewart Copeland
 
 - Overview
-    - Tk
+    - Stewart Copeland is best known as the drummer for The Police. His reggae infused back beats were like the rug in the Big Lebowski, it really tied the room together for The Police. In 1983, Francis Ford Coppola asked Copeland if he would assist in the development of the soundtrack for the film "Rumblefish" based on the S.E. Hinton novel of the same name. Copeland agreed and both the film and soundtrack are a hidden gem of the New Wave 80's. 
 
 - Don't Box Me In
     - https://www.youtube.com/watch?v=8j6Tln0lN0c
     - Segments
-        - Tk
+        - :02 / The Motorcycle Boy Reigns
+        - :33 / Stan and Dillon
+        - 1:09 / The Walk
+        - 1:24 / The Kick Drum
+        - 2:03 / The Drummer
+        - 2:20 / The Clock
+        - 
 
 ## Wall of Voodoo
 
@@ -99,7 +105,6 @@ I use a combination of KeepVid as well as Gif Brewery to make my gifs. Have I me
         - 1:10 / The Keyboard Player
         - 2:07 / The Bar-B-Q'd Iguana
         - 2:49 / The Swinging Light, The Empty Smoking Room
-        - 
 
 ## Wang Chung
 
