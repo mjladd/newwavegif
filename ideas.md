@@ -89,7 +89,6 @@ I use a combination of KeepVid as well as Gif Brewery to make my gifs. Have I me
         - 1:24 / The Kick Drum
         - 2:03 / The Drummer
         - 2:20 / The Clock
-        - 
 
 ## Wall of Voodoo
 
