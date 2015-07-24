@@ -81,7 +81,18 @@ I use a combination of KeepVid as well as Gif Brewery to make my gifs. Have I me
 
 ## Split Enz
 
-- https://www.youtube.com/watch?v=IK9ijYgqKx0
+- Overview
+    - Neil Finn is possibly best known for his work in Crowded House. And while Crowded House was certainly channelling and straddling the genre and time period of New Wave, they don't make the cut. Split Enz, however, do make the cut. Operating from 1972 - 1984, Split Enz by the end of their tenure were the epitome of what New Wave music came to be. The 1980 single "I Got You" was a #1 hit in their native Austrailia. [Wikipedia](https://en.wikipedia.org/wiki/Split_Enz).
+
+- I Got You
+    - https://www.youtube.com/watch?v=IK9ijYgqKx0
+    - Segments
+        - :10 - :11 / The Foot Tap
+        - 1:37 - 1:43 / The Chorus
+        - 1:52 - 2:10 / The Eyes
+        - 2:11 - 2:17 / The Turn
+        - 2:41 - 2:43 / The Band
+        - 
 
 ## Stewart Copeland
 
