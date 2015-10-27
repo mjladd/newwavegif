@@ -10,6 +10,10 @@ I use a combination of KeepVid as well as Gif Brewery to make my gifs. Have I me
 
 - http://www.youtube.com/watch?v=oOg5VxrRTi0
 
+## English Beat
+
+- https://youtu.be/0bM0wVjU2-k
+
 ## Flock of Seagulls
 
 - https://github.com/terryp/newwavegif.git
