@@ -51,6 +51,10 @@ I use a combination of KeepVid as well as Gif Brewery to make my gifs. Have I me
 
 - http://www.youtube.com/watch?v=soleSTp_u_c
 
+## Kim Wilde
+
+- https://youtu.be/_t-QIqo-qkg
+
 ## The Plimsouls
 
 - http://www.youtube.com/watch?v=aIxgBMNhsKU
