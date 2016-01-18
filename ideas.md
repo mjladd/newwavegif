@@ -33,6 +33,10 @@ I use a combination of KeepVid as well as Gif Brewery to make my gifs. Have I me
 - https://www.youtube.com/watch?v=raostGmaOdA
   - Via Mike L.
 
+## Level 42
+
+- https://youtu.be/QPHHkerFwgM
+
 ## The Human League
 
 - https://www.youtube.com/watch?feature=player_detailpage&v=uPudE8nDog0
