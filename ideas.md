@@ -51,6 +51,12 @@ I use a combination of KeepVid as well as Gif Brewery to make my gifs. Have I me
 
 - http://www.youtube.com/watch?v=soleSTp_u_c
 
+## Missing Persons
+
+- https://youtu.be/1WDly1Oc_P4
+- https://youtu.be/NaXZ8GrOH5E
+- https://youtu.be/IasCZL072fQ
+
 ## The Plimsouls
 
 - http://www.youtube.com/watch?v=aIxgBMNhsKU
